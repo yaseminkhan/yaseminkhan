@@ -18,4 +18,4 @@ I am keen to secure internships and work on projects that challenge me and allow
 
 ### Get in Touch
 
-While my GitHub repositories are private, I am happy to share details and code samples upon request. Feel free to connect with me on [LinkedIn][https://www.linkedin.com/in/yasemin-khanmoradi/] or reach out directly. Let's collaborate and innovate together!
+While my GitHub repositories are private, I am happy to share details and code samples upon request. Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/yasemin-khanmoradi/) or reach out directly. Let's collaborate and innovate together!
