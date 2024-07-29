@@ -10,7 +10,7 @@
 
 ### Experience
 
-**📈 Project Management MInternship:** Currently working at a project management consulting firm, where I am gaining valuable experience in managing and executing projects.
+**📈 Project Management Internship:** Currently working at a project management consulting firm, where I am gaining valuable experience in managing and executing projects.
 
 ### Goals
 
