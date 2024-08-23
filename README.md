@@ -18,4 +18,4 @@
 
 ### Goals
 
-I'm committed to continuous learning and eager to work on projects that push my technical boundaries. While I'm keen to apply my knowledge in real-world scenarios, my primary focus is on gaining meaningful experience and collaborating with others to create impactful solutions.
+I'm looking for opportunities to apply my skills in real-world projects where I can contribute effectively and continue to refine my abilities. I’m particularly interested in roles that involve collaboration, innovative problem-solving, and the chance to make a meaningful impact through technology.
